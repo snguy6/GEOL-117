@@ -1,1 +1,1 @@
-Hi! My name is Sofia, I love geology!
+Hi! My name is Sofia.
